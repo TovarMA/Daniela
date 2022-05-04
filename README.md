@@ -1,2 +1,0 @@
-# Daniela
-Trabajo de Electiva 
